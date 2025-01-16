@@ -1,5 +1,5 @@
 - 👋 Hi, Myles Amos 
-- 👀 I’m interested in Software Development/Industrial Technology
+- 👀 I’m interested in Software Development
 - 🌱 I’m currently learning Software Development/IT Fundamentals/Coding
 - 📫 How to reach me Email: mylesamos231@gmail.com
 - 😄 Pronouns: He/Him
